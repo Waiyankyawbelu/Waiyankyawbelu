@@ -1,5 +1,5 @@
 ## Hey there 👋
-I am **Wai Yan Kyaw** - I'm studying a master degree in Telecommunication at [Polytechnic University of Cartagena (UPCT)](https://www.upct.es/) in Spain. In addition, 
+I am **Wai Yan Kyaw** - I'm studying a master degree in Telecommunication at [Polytechnic University of Cartagena (UPCT)](https://www.upct.es/) in Spain.
 <br> <br>
  
 
